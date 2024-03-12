@@ -2,6 +2,6 @@
 * WATCH GLORG TELEVISON
 * STRAIGHT FROM THE GLORGWORLD UNIVERSE
 * soon there will be no more colors. no more light.
-* ᥇ٔ⥒⁓ཇŒ╇╓౒ፇ॔⁔ࡇⴡ∡⁀ᜣᭀଥ∤ୀ℣✤ภṆ, ⭁ṅɒɆ᱅♁ᅒ⹇⡅᱁ὒهᅅੁᵒ⥆Փ᱄͇!
+* Շɔ͓͒ՇՒŇɓ͇͒ɔTɇС̡рԣ̀%Ȥŀȣ̤, ц́хŒՆͅŁ͒чՅŁR͇ͅŁɒ͆œɄŇ!!!
 * I'M GLORG GLOCKENSPIEL!
 * THAT IS MY NAME!
